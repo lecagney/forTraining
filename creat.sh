@@ -7,4 +7,4 @@
 #everything
 And Dan has an amazing sweater.
 It makes him appear a Shockers fan.
-
+Only if he knows how to separate the chaff
